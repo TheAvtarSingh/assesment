@@ -10,7 +10,8 @@
 ![image](https://github.com/TheAvtarSingh/assesment/assets/88712571/4c0ff86c-1c1e-4b23-abf9-c5f9076d0665)
 ![image](https://github.com/TheAvtarSingh/assesment/assets/88712571/78dfc9cc-1f15-4c08-a929-4b6c112d4c61)
 ![image](https://github.com/TheAvtarSingh/assesment/assets/88712571/746608e3-b039-4a02-ac19-453830e1abfe)
-![Uploading image.png…]()
+![image](https://github.com/TheAvtarSingh/assesment/assets/88712571/70ef4ce1-a0c5-4b28-94be-6338906bb762)
+![image](https://github.com/TheAvtarSingh/assesment/assets/88712571/d04f82ba-b745-4510-82fd-55d6f97475e5)
 
 
 
